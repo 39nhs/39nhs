@@ -1,5 +1,24 @@
 ## hi I'm 39nhs
 ---
+##What i do
+---
+I am currently majoring in Convergence Chemical Engineering and Computer Engineering at Yeungnam University.
+
+
+---
+##tach stack
+---
+not yet
+
+
+---
+##contact
+---
+gmail : xlfo68@g
+
+
+
+---
 
 
 <!--
